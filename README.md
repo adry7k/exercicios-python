@@ -1,1 +1,1 @@
-EXERCÍCIOS PRATICADOS EM SALA.
+exercicíos praticados no primeiro semestre.
