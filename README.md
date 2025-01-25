@@ -1,1 +1,1 @@
-exercicíos praticados no primeiro semestre.
+exercícios praticados no primeiro semestre.
